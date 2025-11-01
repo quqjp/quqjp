@@ -17,7 +17,8 @@
 - 2013年：Adobe AppBox Awards 2013 ユーティリティ賞 次点 受賞（Gradation Camera）  
 
 ## Links  
-- 📝 Note: [https://note.com/quqjp](https://note.com/quqjp)  
+- 📝 Note: [https://note.com/quqjp](https://note.com/quqjp)
+- 📸 Instagram: [https://www.instagram.com/quqjp.journey](https://www.instagram.com/quqjp.journey)  
 - 🐦 X: [https://x.com/quqjp](https://x.com/quqjp)  
 - 💼 GitHub: https://github.com/quqjp  
 
